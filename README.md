@@ -27,7 +27,7 @@ Pas un chercheur. Un consultant indépendant français en tracking et SEA, qui r
 
 ## Pourquoi le partager
 
-Je ne cherche pas à prouver que tout ce qui est écrit ici est juste. Je veux que ça circule assez pour être transmis, même par des gens que je ne connaîtrai jamais. Vous n'avez pas besoin d'être celui qui agit dessus. Juste un maillon : faites-le suivre à quelqu'un, qui le fera peut-être suivre à quelqu'un d'autre, et quelques maillons plus loin, ça arrive peut-être à quelqu'un qui a vraiment le pouvoir d'en faire quelque chose.
+Je ne cherche pas à prouver que tout ce qui est écrit ici est juste. Je veux que cela circule assez pour être transmis, même par des gens que je ne connaîtrai jamais. Vous n'avez pas besoin d'être celui qui agit dessus. Juste un maillon : faites-le suivre à quelqu'un, qui le fera peut-être suivre à quelqu'un d'autre, et quelques maillons plus loin, cela arrive peut-être à quelqu'un qui a vraiment le pouvoir d'en faire quelque chose.
 
 Je n'ai besoin d'aucun crédit. Si une seule idée, un seul passage, finit par compter quelque part dans la façon dont tout ça se construit, j'aurai eu ce que je voulais.
 
